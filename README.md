@@ -6,4 +6,4 @@ Não é novidade para ninguém que os políticos, utilizando o poder e a ferrame
 No dia 22 de julho de 2024, o Brasil atingiu a marca de 2 TRILHÕES de REAIS em impostos pagos pelo "contribuinte" ao Estado. Vale ressaltar que esse fato seria BOM, se a CARGA TRIBUTÁRIA estivesse sido reduzida, que na verdade, o que aconteceu foi totalmente o INVERSO, ou seja, ocorreu o aumento do valor pago.
 **https://www.metropoles.com/brasil/impostometro-bate-r-2-trilhoes-em-impostos-pagos-em-2024**
 
-**O objetivo da TaxDAO é criar uma Crypto ou Token baseado na arrecadação de impostos, fazendo com que os impostos pagos pelos contribuintes ganhe VALOR em forma de CriptoAtivos.**
+**O objetivo da TaxDAO é criar uma Crypto ou Token baseado na arrecadação de impostos, fazendo com que os impostos pagos pelos contribuintes ganhe VALOR em forma de CriptoAtivos, ou seja, quanto mais impostos o Estado criar/aumentar, maior será o valor do CriptoAtivo.**
